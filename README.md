@@ -1,1 +1,1 @@
-# garagx
+# GARAGX
